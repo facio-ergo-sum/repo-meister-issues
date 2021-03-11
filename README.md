@@ -1,1 +1,1 @@
-We :heart:  your feedback, suggestions and bug reports!
+We :heart: your feedback, suggestions and bug reports!
